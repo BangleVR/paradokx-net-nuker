@@ -1,1 +1,0 @@
-# paradokx-net-nuker
